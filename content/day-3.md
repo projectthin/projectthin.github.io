@@ -6,3 +6,6 @@ Category: Log
 
 1pm: 1 cheese, ham and tomato sandwitch.
 
+5pm: 2 small slices of sugar-free banana cake and some home made banana ice cream with berries.
+
+8pm: BBQ; 2 pieces of chicken, 1 sausage, 1 kebab (chicken), 2 servings of potato salad.
